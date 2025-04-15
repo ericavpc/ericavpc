@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @ericavpc
 - 👀 I’m interested in dancing
 - 🌱 I’m currently learning psychology
-- 💞️ I’m looking to collaborate on cheerleading
-- 📫 How to reach me : instagram (@erica.vpc)
+- 💞️ I’m looking to collaborate on singing
+- 📫 How to reach me : instagram & tiktok
 - 😄 Pronouns: E-R-I-C-A
 - ⚡ Fun fact: I love matcha
 
